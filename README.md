@@ -1,0 +1,1 @@
+# forlmulario-compras-stickers
